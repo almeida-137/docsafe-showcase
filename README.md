@@ -110,7 +110,7 @@ Caso queira conversar sobre o projeto ou sobre oportunidades profissionais:
 
 * 💼 LinkedIn: [https://linkedin.com/in/mateus-de-almeida-a66643329](https://linkedin.com/in/mateus-de-almeida-a66643329)
 * 🐙 GitHub: [https://github.com/almeida-137](https://github.com/almeida-137)
-* ✉️ Email: [contato@mavistudio.com.br](mailto:contato@mavistudio.com.br)
+* ✉️ Email: [contato@mavistudio.com.br](mailto:contato.almeidagf@gmail.com)
 
 ---
 
